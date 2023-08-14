@@ -1,3 +1,0 @@
-Hello g..
-Seconddd..
-againnn..
